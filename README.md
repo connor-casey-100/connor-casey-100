@@ -3,5 +3,4 @@ My name is Connor Casey, I'm currently studying for a BS in Computer Science at 
 I'm looking to get my name out there as a hard working individual willing to adapt to the ever-changing industry of technology.
 
 Additional Details: 
-  - I'm looking for internship opportunities!
   - You can reach me at - connorcasey100@gmail.com
