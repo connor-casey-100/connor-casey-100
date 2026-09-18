@@ -4,3 +4,4 @@ I'm looking to get my name out there as a hard working individual willing to ada
 
 Additional Details: 
   - You can reach me at - connorcasey100@gmail.com
+  - ePorfolio - https://connor-casey-100.github.io/
